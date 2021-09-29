@@ -2,6 +2,8 @@
 
 ![logo](https://telegra.ph/file/569fd05fb4c587a360d38.jpg)
 
+### Developers:
+[@Cyber01_Warriors](https://t.me/Cyber01_Warriors)
 
 
 
